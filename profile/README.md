@@ -29,4 +29,4 @@ The following are some of the people who founded this community:
 Now the 2 founders have left the community due to important business in their real world, The team is now led by Parkerzanta and assisted by RandsX.
 
 
-<h3 style="text-align: right;">We Brother's Thrive Together</h3>
+***<h3 style="text-align: center;">We Brother's Thrive Together</h3>***
